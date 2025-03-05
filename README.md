@@ -1,0 +1,1 @@
+Ders içi çalışmalar.
